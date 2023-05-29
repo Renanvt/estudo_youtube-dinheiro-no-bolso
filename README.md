@@ -1,3 +1,14 @@
+# Tópicos
+
+[Estratégias]
+
+[Duas formas de encarar o Youtube]
+
+[Como funciona a renda pra sempre - Ganhos com adsense]
+
+
+# Estratégias
+
 Se afiliar na amazon
 Escolher um video de um produto vencedor
 Se afiliar na Walmart
@@ -22,7 +33,7 @@ Faz vídeo para si mesmo
 
 Quanto mais postar, mais inscritos vc ganha
 
-# Como funciona a renda pra sempre - Ganhod com adsense
+# Como funciona a renda pra sempre - Ganhos com adsense
 
 1 - Escolher um bom tema
 
